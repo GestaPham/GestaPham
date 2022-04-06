@@ -6,4 +6,4 @@
  - 🏫 Currently studying IT at RMIT
  - 👀 Interested in Web/Mobile Application Development
 
-ψ(｀∇´)ψ φ(゜▽゜*)♪
+φ(゜▽゜*)♪
