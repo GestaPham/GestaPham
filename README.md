@@ -1,9 +1,1 @@
-👋Hello Hello Hello👋
-   
- I'm Long Pham!
- 
- - 🌱 Learning Python, C++ 
- - 🏫 Currently studying IT at RMIT
- - 👀 Interested in Web/Mobile Application Development
-
-φ(゜▽゜*)♪
+8 billion people 😨 14 billion buttcheeks 😔
